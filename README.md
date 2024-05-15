@@ -44,3 +44,9 @@ Community Engagement: I actively participate in local professional organizations
 I maintain an active presence on professional networking platforms like LinkedIn, where I engage with industry peers, share insights, and explore collaboration opportunities.
 
 I regularly contribute to coding repositories on GitHub, showcasing my projects and staying               up to date with the latest technologies and techniques.
+
+TO KNOW MORE ABOUT ME YOU CAN VISIT MY NOTION PROFILE [NOTION PROFILE](https://prabalsaxena.notion.site/1e7c80c1b33048b3870bdced6e13abf6?v=95d272546c034a9080aa52e48035b310&pvs=4).
+OR MY LINKEDIN PROFILE [LINKEDIN](https://www.linkedin.com/in/prabalsaxena2000) 
+
+**YOU CAN CONTACT ME THROUGH MAIL:- saxena.prabal2000@gmail.com**
+
